@@ -5,6 +5,6 @@
 <p align="center"><a href="https://en.pronouns.page/@slvrxei">pron</a> 
 <p align="center"><a href="https://slvrlvii.straw.page/">straw</a> 
 
-
+         hello, my name is lvi! you can also call me kevin or rocket, i dont mind!! people who arent friends with us always interact with caution, we are sensitive people .
 
 
