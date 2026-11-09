@@ -6,5 +6,5 @@
 <p align="center"><a href="https://slvrlvii.straw.page/">straw</a> 
 
          hello, my name is lvi! you can also call me kevin or rocket, i dont mind!! people who arent friends with us always interact with caution, we are sensitive people .
-<p align="center"> cxh is always heavily encouraged, unless on DNT mode . ask when we are on DNI, thank you!
-
+<p align="center"> cxh is always heavily encouraged, unless on DNT mode . when we are on DNI, we are slightly selective with cxh …
+ thank you for understanding !!
