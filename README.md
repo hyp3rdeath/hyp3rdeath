@@ -1,4 +1,4 @@
-##  the mortals reached their hands to you .
+<p align="center"> triple times the friends and tripe times the fun !
  <p align="center"><a href="https://hits.sh/github.com/hyp3rdeath/"><img alt="Hits" src="https://hits.sh/github.com/hyp3rdeath.svg?style=for-the-badge&label=critters&color=6FC6D4&labelColor=33276F"/></a>
 <p align="center"><img src="https://github.com/hyp3rdeath/hyp3rdeath/blob/521a034875a1de199f45908d5be376ba5039cf71/IMG_7510.png" width="850">
 
