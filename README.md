@@ -9,3 +9,4 @@
 <p align="center"> my love <3 : <a href="https://github.com/JollyMatthew">❤︎M</a>
 
 <p align="center"> nominate us for PT's doey trust ... thanks for reading !
+<p align="center"> ac : all images found in <a href="https://poppy-playtime.fandom.com/wiki/Doey_the_Doughman">here</a> , top divider image from <a href="https://pin.it/KIki5NqTv">pin</a>
